@@ -57,8 +57,8 @@ I enjoy participating in hackathons and continuously learning new technologies.
 
 ### 📫 Let's Connect
 
-- **Email:** [apna.email@example.com](mailto:apna.email@example.com)
-- **LinkedIn:** [linkedin.com/in/fajshah](https://linkedin.com/in/fajshah)
+- **Email:** fajjbarbie@gmail.com
+- **LinkedIn:** https://www.linkedin.com/in/syeda-farzana-shah-0128662ba?utm_source=share_via&utm_content=profile&utm_medium=member_android
 - **Twitter/X:** [@fajshah](https://twitter.com/fajshah)
 
 ---
